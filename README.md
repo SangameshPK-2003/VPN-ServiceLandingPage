@@ -21,7 +21,7 @@ To get started with our VPN service, follow these simple steps:
 
 ## Support
 
-If you have any questions or need assistance, our support team is available 24/7 to help. You can reach us via email at support@example.com or through our website's live chat feature.
+If you have any questions or need assistance, our support team is available 24/7 to help. You can reach us via email at sangameshkardegouda@gmail.com or through our website's live chat feature.
 
 ## Pricing
 
